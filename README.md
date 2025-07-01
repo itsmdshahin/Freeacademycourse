@@ -71,9 +71,9 @@ You can explore all available free courses, test the crypto checkout system, and
 ## 🙋‍♂️ About Me
 
 **Md Shahinur Rahman**  
-🌐 Founder of FreeAcademyCourse.com  
+🌐 Founder of FreeAcademyCourse  
 📍 Bangladesh  
-📧 Email: [itoolapk@gmail.com](mailto:itoolapk@gmail.com)
+📧 Email: [mdshahinurrahman8@gmail.com](mailto:mdshahinurrahman8@gmail.com)
 
 ---
 
